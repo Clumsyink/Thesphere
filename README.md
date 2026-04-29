@@ -6,7 +6,7 @@ Hҽ/ԋιɱ 𑜷→
 <p align="center">"Mαɳ ιʂ ƈσɳԃҽɱɳҽԃ ƚσ Ⴆҽ ϝɾҽҽ; Ⴆҽƈαυʂҽ σɳƈҽ ƚԋɾσɯɳ ιɳƚσ ƚԋҽ ɯσɾʅԃ, ԋҽ ιʂ ɾҽʂρσɳʂιႦʅҽ ϝσɾ ҽʋҽɾყƚԋιɳɠ ԋҽ ԃσҽʂ."</p>
 <p align="center">- ᴊᴇᴀɴ ᴘᴀᴜʟ ꜱᴀʀᴛʀᴇ</p>
 
-<img src="https://file.garden/abivIzHBJFbEdRXo/Tumblr_l_243021179519064.gif" width="300"> <img src="https://file.garden/abivIzHBJFbEdRXo/Tumblr_l_47568177995394.gif" width="300">⊹₊˚‧︵‿₊୨♬୧₊‿︵‧˚₊⊹
+<img src="https://file.garden/abivIzHBJFbEdRXo/Tumblr_l_243021179519064.gif" width="270"> <img src="https://file.garden/abivIzHBJFbEdRXo/Tumblr_l_47568177995394.gif" width="270">⊹₊˚‧︵‿₊୨♬୧₊‿︵‧˚₊⊹
 
 
 <img src="https://file.garden/abivIzHBJFbEdRXo/Tumblr_l_1259222913679273.jpg" width="420"> <img src="https://file.garden/abivIzHBJFbEdRXo/Tumblr_l_1259225277514793.jpg" width="420">

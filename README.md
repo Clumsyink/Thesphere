@@ -2,7 +2,7 @@
  # <p align="center"> ⊥ƆIᗡᗡ∀ ƆIS∩W  ▶︎ •၊၊||၊|။||||| 0:10</p>
 Hҽ/ԋιɱ 𑜷→
 
-# <p align="center">╰┈➤ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ゛ ⸝⸝.ᐟ⋆</p>
+# <p align="center">╰┈➤[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=ksn6lq2n0oawbio1e39hdbz3i&cover_image=true&theme=spotify-embed&show_offline=true&background_color=f31616&interchange=false&profanity=false&bar_color=36e114&bar_color_cover=true&mode=dark)](https://github.com/kittinan/spotify-github-profile) ⸝⸝.ᐟ⋆</p>
 <p align="center">"Mαɳ ιʂ ƈσɳԃҽɱɳҽԃ ƚσ Ⴆҽ ϝɾҽҽ; Ⴆҽƈαυʂҽ σɳƈҽ ƚԋɾσɯɳ ιɳƚσ ƚԋҽ ɯσɾʅԃ, ԋҽ ιʂ ɾҽʂρσɳʂιႦʅҽ ϝσɾ ҽʋҽɾყƚԋιɳɠ ԋҽ ԃσҽʂ."</p>
 <p align="center">- ᴊᴇᴀɴ ᴘᴀᴜʟ ꜱᴀʀᴛʀᴇ</p>
 
